@@ -1,12 +1,13 @@
-- 👋 Hi, I’m @ARYAFANSJKT48yes
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-ARYAFANSJKT48yes/ARYAFANSJKT48yes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hay 😁 Aku Arya 
+menjalankan bot dengan mudah
+menggunakan github
+perlu diingat!
+bahwa bot yang aku dapat <
+dari YouTube <
+Jadi jangan berharap <
+ { banyak ya! }
+Selamat Menjalankan Ilmu 🏃🏻
+     cara install dan
+  dan lengkap sudah ada di 
+  pengaturan dalam file ya !
+   -OK SEGITU AJA BAY-
